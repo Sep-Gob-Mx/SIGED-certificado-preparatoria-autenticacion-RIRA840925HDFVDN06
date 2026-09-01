@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RIRA840925HDFVDN06
+RIRA840925HDFVDN06
